@@ -1,0 +1,2 @@
+# zajebistaekipa
+dziwne to 
