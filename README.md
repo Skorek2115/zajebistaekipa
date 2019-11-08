@@ -1,2 +1,4 @@
 # zajebistaekipa
-dziwne to 
+dziwne to
+angelika
+czesc
