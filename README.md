@@ -1,2 +1,3 @@
 # zajebistaekipa
-dziwne to 
+dziwne to
+1234567890
